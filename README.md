@@ -14,7 +14,7 @@ For every word they trace, it's a scar they keep
 I made my debut in '86
 Wit a melody and a president's mix
 And now I stay on target and refuse to miss
-And I still make hits
+And I still make super dank hits
 With beats, parties, clubs in the cars and jeeps
 My underground sound vibrates the streets
 MC's wanna beef then I play for keeps
