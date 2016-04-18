@@ -2,7 +2,7 @@
 
 ## Eric B. & Rakim
 
-Let's trace the hints and check the file
+Let's dtrace the hints and checksum file
 Let see who bit to detect the style
 I flip the script so they can't get foul
 At least not now, it'll take a while
